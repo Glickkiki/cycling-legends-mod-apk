@@ -9,7 +9,7 @@ Cycling Legends Mod APK is a dynamic mobile game where you manage a professional
 This sports team simulator captures the excitement of cycling while giving players control over real-time strategies and team growth. As a team manager, you’ll lead your crew through challenging tournaments and races, aiming for victories. The cycling management game blends elements of strategy, racing, and resource management, making it an engaging experience for players eager to be in charge.
 
 
-👌🏻Dowload now 🧑🏻🚲🚲: https://modhello.com/
+👌🏻Dowload now 🧑🏻🚲🚲: [Cycling Legends Mod APK](https://modhello.com/cycling-legends/)
 ---
 
 ### Features of Cycling Legends Mod APK
